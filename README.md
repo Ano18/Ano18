@@ -1,6 +1,6 @@
 💫 About Me:
 
-🌱 I’m currently learning -  C#,Java<br>💬 Ask me about  - Android<br>📫 How to reach me -  ano.dzamelashvili.01@mail.ru<br>⚡ Fun fact - I Love Dogs
+🌱 I’m currently learning -  C#,Java<br>💬 Ask me about  - Android<br>📫 How to reach me -  anodzamelashvili00@gmail.com<br>⚡ Fun fact - I Love Dogs
 
 
 ## 🌐 Socials:
